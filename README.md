@@ -10,3 +10,5 @@ Você pode entrar em contato comigo 📫
 alurastartestudante@email.com
 
 @death-arch
+
+![](https://images.app.goo.gl/URpMBxabFCwYXSYZ7)
